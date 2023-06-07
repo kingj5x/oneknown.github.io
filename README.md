@@ -1,2 +1,2 @@
-# oneknown.github.io
+# freegames.github.io
 unblocked games
